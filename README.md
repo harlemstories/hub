@@ -4,4 +4,4 @@ Harlem Stories is a podcast about real estate, especially the neighborhoods in U
 
 [CLICK HERE for the Podcast](https://www.buzzsprout.com/1882826)
 
-![](HS logo.jpg)
+![](HS-logo-square.jpeg)
